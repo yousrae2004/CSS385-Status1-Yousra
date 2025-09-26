@@ -1,0 +1,1 @@
+Since I am new to game development and have never used a game engine to create one, I want to start simple. A similar game like Stardew Valley with the top down view or a 2d platforner are some of my ideas at the moment. Incorporating the storytelling, adventure and puzzle aspect can transform simple mechanics into a fun and interactive game. 

@@ -1,0 +1,1 @@
+Growing up I loved the aspect of open world puzzle games such as the Legend of Zelda series, which is where I draw most of my inspiration from.
