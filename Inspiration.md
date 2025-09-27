@@ -1,0 +1,1 @@
+Growing up I loved the aspect of open world puzzle games such as the Legend of Zelda series, which is where I draw most of my inspiration from. Whether it be from their games that give me that nostalgic feeling like Ocarina of Time or Spirit Tracks, or new releases like Breath of the Wild, I hope to replicate some aspect of the games in my own. 
